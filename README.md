@@ -1,3 +1,4 @@
+(this is a wip cuz i cant do code😭)
 <p align="center"> <img src="https://files.catbox.moe/uoisri.gif" width="1250" height="800"/> </p>
 <p align="center"> <img src="https://files.catbox.moe/5fpg43.png"/> </p>
 <p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Schoolbell&size=30&duration=3000&pause=1000&color=3EC3F8&center=true&width=900&lines=%E2%80%98In+the+end,+everything+Nagito+said...%E2%80%99;%E2%80%98...I+don't+know+what+was+true+and+what+was+lies.%E2%80%99;%E2%80%98But+even+so,%E2%80%99;%E2%80%98there+might've+been+a+definitive+truth+hidden+somewhere+in+his+words...%E2%80%99;%E2%80%98If+there+wasn't...%E2%80%99;%E2%80%98there's+no+way+I+could+feel+this+mysterious+bond+between+Nagito+and+me.%E2%80%99;%E2%80%98If...+he+does+obtain+the+hope+he+wants,%E2%80%99;%E2%80%98what+is+he+going+to+do...?%E2%80%99;%E2%80%98Strangely+enough...%E2%80%99;%E2%80%98I+feel+like+I+want+to+see+that...%E2%80%99"/> </p>

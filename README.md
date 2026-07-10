@@ -1,3 +1,9 @@
-<p align="center"> (heh..graphic by ME.. art by _meiiow on YT! SORY THE GRAPHIC GOT MESSED UP ON THE OUTER PARTS BC OF FLIPACLIP😞) </p>
-<p align="center"> <img src="https://files.catbox.moe/ha3qnf.gif" width="400" height="400"/> </p>
-<p align="center"> awe...SO CUTE! <img src="https://files.catbox.moe/o0yyge.png" width="25" height="25"/> 
+<p align="center"> <img src="https://files.catbox.moe/uoisri.gif" width="1250" height="800"/> </p>
+<p align="center"> <img src="https://files.catbox.moe/5fpg43.png"/> </p>
+<p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Schoolbell&size=30&duration=3000&pause=1000&color=3EC3F8&center=true&width=900&lines=%E2%80%98In+the+end,+everything+Nagito+said...%E2%80%99;%E2%80%98...I+don't+know+what+was+true+and+what+was+lies.%E2%80%99;%E2%80%98But+even+so,%E2%80%99;%E2%80%98there+might've+been+a+definitive+truth+hidden+somewhere+in+his+words...%E2%80%99;%E2%80%98If+there+wasn't...%E2%80%99;%E2%80%98there's+no+way+I+could+feel+this+mysterious+bond+between+Nagito+and+me.%E2%80%99;%E2%80%98If...+he+does+obtain+the+hope+he+wants,%E2%80%99;%E2%80%98what+is+he+going+to+do...?%E2%80%99;%E2%80%98Strangely+enough...%E2%80%99;%E2%80%98I+feel+like+I+want+to+see+that...%E2%80%99"/> </p>
+<p align="center"> <img src="https://files.catbox.moe/5fpg43.png"/> </p>
+<p align="center"> <img src="https://files.catbox.moe/bt6nv4.png" width="55" height="50"/>   <img src="https://files.catbox.moe/97s9lb.png" width="180" height="100"/> <img src="https://files.catbox.moe/b59uda.png" width="200" height="100"/> <img src="https://files.catbox.moe/lxkexh.png" width="200" height="100"/>⠀⠀⠀<img src="https://files.catbox.moe/bt6nv4.png" width="55" height="50"/> </p>
+<p align="center"> <img src="https://files.catbox.moe/5fpg43.png"/> </p>
+<p align="center"> <img src="https://files.catbox.moe/bt6nv4.png" width="55" height="50"/> <img src="https://files.catbox.moe/2665x0.png" width="270" height="150"/> <img src="https://files.catbox.moe/bt6nv4.png" width="55" height="50"/> </p>
+<p align="center"> <img src="https://files.catbox.moe/2r6nu6.gif" width="180" height="180"/> <img src="https://files.catbox.moe/bt6nv4.png" width="55" height="50"/> <img src="https://files.catbox.moe/xi5au3.gif" width="180" height="180"/> <img src="https://files.catbox.moe/bt6nv4.png" width="55" height="50"/> <img src="https://files.catbox.moe/uz4873.gif" width="180" height="180"/>
+<p align="center"> <img src="https://files.catbox.moe/5fpg43.png"/> </p>
